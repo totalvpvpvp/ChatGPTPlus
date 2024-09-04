@@ -1,6 +1,6 @@
 # ChatGPT Plus共享账号购买
 
-最新地址：[https://tz.059950.xyz](https://tz.059950.xyz)
+最新地址：[https://t.192291.xyz](https://t.192291.xyz)
 
 ## ChatGPT Plus账号简介
 
